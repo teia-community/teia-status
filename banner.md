@@ -1,2 +1,2 @@
-Here is some news for ya'all: 
-[Learn more](https://blog.teia.art/)
+#SavePakistan - The flood relief fundraiser for Pakistan
+[Learn more](https://blog.teia.art/blog/savepakistan-announcement)
